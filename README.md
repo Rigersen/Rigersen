@@ -15,7 +15,34 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Franqui BK-> https://www.youtube.com/playlist?list=PL0jT61l8O_LbcFvbXI74h4tS2Zj5OyBey 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Franquia BK-> https://www.youtube.com/playlist?list=PL0jT61l8O_LbcFvbXI74h4tS2Zj5OyBey 
 FireRed-> https://www.youtube.com/playlist?list=PL0jT61l8O_LbCttJzt6ebChs3J12h4AZc
 BT -> https://www.youtube.com/playlist?list=PL0jT61l8O_LYqidX5urLmgOPJAwIJrv29
 M&LPIT -> https://studio.youtube.com/playlist/PL0jT61l8O_LarohJIF7UwwypVcYdkNjql
